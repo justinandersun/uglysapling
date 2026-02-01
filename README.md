@@ -1,1 +1,1 @@
-Ugly Sapling grows companies that are rooted in strong values.
+Ugly Sapling grows products rooted in strong values.
