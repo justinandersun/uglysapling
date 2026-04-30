@@ -1,1 +1,1 @@
-Ugly Sapling grows products rooted in strong values.
+Ugly Sapling was once an independent press.
